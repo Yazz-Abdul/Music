@@ -11,7 +11,7 @@
 
 **Examples of Country music artists**
 
-- Kenny rodgers
+- Kenny Rodgers
 - Blake Shelton
 - Dolly Parton
 - Carrie Underwood
